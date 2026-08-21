@@ -6,7 +6,7 @@ The "Psychic Terrorists" have certainly been programmed by these techniques, som
 
 Not mentioned in the book is that these trainings provide the subjects with Psychic powers, and subsequently, these automated "mind-control slaves" gradually gain control over their original programmers, making it impossible to remove them from power, by individuals who place them there.
 
-## PERSONAL EXPERIENS
+## PERSONAL EXPERIENCE
 
 Some friends of mine in the Shores area. My understanding is that Sammy was programmed with the Friz formula as a child, and then programmed Lil over the past ~6 years (whi was my girlfriend for some months earlier this year, how I gained such intimate understanding of their personality changes and identified the relationship with friz code). 
 
