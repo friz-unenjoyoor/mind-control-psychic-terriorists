@@ -4,7 +4,7 @@ Some friends of mine in the Shores area. My understanding is that Sammy was prog
 
 When looking over the contents of this book, I easily identified them as having been programmed with it, having endless backups if certain personalities were overly disrupted. 
 
-The formula traumatizes the brain into a blank slate which follows instructions flawlessly without fail. Over time, the creations pver-power their creators. and gain god-like powers that are quite challenging to remediate. 
+The formula traumatizes the brain into a blank slate which follows instructions flawlessly without fail. Over time, the creations over-power their creators. and gain god-like powers that are quite challenging to remediate. 
 
 ## Scammy Evil Faced Art
 
