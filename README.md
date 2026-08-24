@@ -13,7 +13,6 @@ The "Psychic Terrorists" have been programmed by these techniques, some of them 
 	- ["MIND CONTROL SLAVES" GAIN POWER OVER PROGRAMMERS](#mind-control-slaves-gain-power-over-programmers)
 - [SLAVES PROGRAM ADDITIONAL SLAVES](#slaves-program-additional-slaves)
 - [PERSONAL EXPERIENCE](#personal-experience)
-- [BEST RECOMMENDATION IS PUT SAMMY IN A LEAD CASE](#best-recommendation-is-put-sammy-in-a-lead-case)
 - [Photo Examples](#photo-examples)
 	- [Scamuel MagnAsshole](#scamuel-magnasshole)
 	- [80%-98.99% Consumed by Death](#80-9899-consumed-by-death)
