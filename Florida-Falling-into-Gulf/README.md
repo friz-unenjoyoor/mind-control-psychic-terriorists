@@ -4,9 +4,15 @@ Some friends of mine in the Shores area. My understanding is that Sammy was prog
 
 When looking over the contents of this book, I easily identified them as having been programmed with it, having endless backups if certain personalities were overly disrupted. 
 
-The formula traumatizes the brain into a blank slate which follows instructions flawlessly without fail. Over time, the creations over-power their creators. and gain god-like powers that are quite challenging to remediate. 
+The formula involves traumatizing the brain into a blank slate which follows instructions flawlessly without fail. 
+
+These mind-control slaves appear to have evolved, since the writing of Fritz, into psychic superpowers.
+
+Over time, the creations over-power their creators. and gain god-like powers that are quite challenging to remediate. 
 
 ## Scammy Evil Faced Art
+
+Closely examining the art on his neck, you can see him creating an etheric personality, much in the same way that the personality is programmed in Fritz's method. 
 
 <a href="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2019.png"><img src="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2019.png"  style="display: block; width: 50%;"></a>
 <a href="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-25.jpeg"><img src="SCAMMY-MAGNASSCHOLE_EVIL-FACETATT_2013-25.jpeg"  style="display: block; width: 50%;"></a>
